@@ -1,1 +1,0 @@
-# ar_demo_3d_go4ndeij
